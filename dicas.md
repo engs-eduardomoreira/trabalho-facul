@@ -1,0 +1,1 @@
+# Algumas dicas para o curso.
